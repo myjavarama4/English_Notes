@@ -1,4 +1,4 @@
 English_Notes
 =============
 
-English Notes
+English Notes from jordyk@seznam.cz
